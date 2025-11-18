@@ -1,2 +1,2 @@
 # RIFAS-
-PAGINA [[click](file:///C:/Users/nashi/Downloads/remixed-479d32ab%20(1).html)]
+PAGINA [[click](https://claude.ai/public/artifacts/e58ab52b-7371-48e9-933f-4fcc16906c0f)]
